@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate to anyone just to learn
 - 📫 How to reach me ...
 - 😄 Pronouns: Male
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I don't know what I'm doing.
 
 <!---
 FacedXD/FacedXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
